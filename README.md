@@ -17,5 +17,5 @@ Supporting the channel, participating in the poles,
 in the comments, asking more questions, and suggesting future videos.
 
 Hope you enjoy this video.
-Take Care.
+Peace out :)
 Bek.
